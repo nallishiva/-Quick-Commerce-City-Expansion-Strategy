@@ -1,5 +1,4 @@
 # -Quick-Commerce-City-Expansion-Strategy
-# Quick Commerce City Expansion Strategy
 ## Zepto & Blinkit — India Market Analysis | April 2026
 
 ### Project Summary
